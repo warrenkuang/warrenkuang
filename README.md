@@ -1,6 +1,6 @@
 Hi, I’m @warrenkuang
 
-I'm a 2nd year Bioengineering student at UC Berkeley and I’m interested in health technologies and medical devices.
+My name is Warren Kuang and I am a student at UC Berkeley studying Mechanical Engineering. I hope to enter the biotech, renewable energy, automobile, or aerospace industries to create innovative technologies to improve society. Thanks for checking out my page!
 
 You can reach me at warrenkuang@berkeley.edu!
 
